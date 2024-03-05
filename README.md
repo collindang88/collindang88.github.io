@@ -1,1 +1,1 @@
-# collindang88.github.io
+redirect to personal website
